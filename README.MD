@@ -1,1 +1,1 @@
-Monitored by betteruptime.com
+Monitored by betteruptime.com and hetrixtools.com/
